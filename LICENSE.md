@@ -1,4 +1,4 @@
-# 
+# Leve Omni Flash scripts. Com memória contextual e pronto para empresas — otimizado para máximo desempenho e eficiência.
 
 
 
